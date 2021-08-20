@@ -5,3 +5,4 @@
 - 🌱 I’m currently studying, sharing and working.
 - 💞️ I’m looking to collaborate with learners.
 - 📫 Reach me through my email contactmesam07@gmail.com
+- P.S.:   I am a medical student
